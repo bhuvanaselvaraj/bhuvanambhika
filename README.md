@@ -1,1 +1,0 @@
-# Bhuvanambhika_ Pharmacy management
